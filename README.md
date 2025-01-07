@@ -38,15 +38,9 @@ Telegram is a key platform for direct engagement with crypto enthusiasts, and I 
 ## **Services Breakdown & Pricing:**
 
 ### **Reddit Campaigns**  
-- **Basic Package** – $300: 3 Reddit posts across targeted subreddits, 1 meme, and 2 days of comment engagement.
-- **Advanced Package** – $500: 5 Reddit posts, 2 memes, 1 AMA participation, and 1 week of comment and community engagement.
+- **Basic Package** – $299: 3 Reddit posts across targeted subreddits, 1 meme, and 2 days of comment engagement.
+- **Advanced Package** – $499: 5 Reddit posts, 2 memes, 1 AMA participation, and 1 week of comment and community engagement.
 
-### **Telegram Campaigns**  
-- **Basic Package** – $250: Telegram group/channel setup, 5 posts in relevant groups, 2 community engagement sessions.
-- **Advanced Package** – $450: Full Telegram campaign management (group setup, daily engagement, 1 giveaway promotion, and influencer outreach).
-
-### **Full Package** (Reddit + Telegram)  
-- **Premium Campaign** – $750: Includes both Reddit and Telegram campaigns (10 posts, memes, giveaways, influencer outreach, and community engagement).
 
 ---
 
@@ -60,9 +54,11 @@ Telegram is a key platform for direct engagement with crypto enthusiasts, and I 
 
 ## **Get Started Now!**
 
-Ready to pump up your meme coin? 🚀 Contact me today to discuss your project and let's make your coin the next big thing in the crypto world!  
+Ready to pump up your meme coin? 🚀 Purchase today to discuss your project and let's make your coin the next big thing in the crypto world!  
 
-📩 **DM me on Reddit or Telegram** or send an email to [YourEmail@domain.com].
+https://form.jotform.com/250058966307361
+
+📩 **DM me on Telegram** or send an email 
 
 ---
 
